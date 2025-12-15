@@ -12,12 +12,15 @@
   </a><br>
     <p align="center"> 21 y/o -- she/he/any/neos <br>
       married irl btw lol <br><br>
-  <i>all our links r under renovation oops</i> <br><i></i></a><br><br><img src="https://64.media.tumblr.com/eb2b6cffea167619bde959f23395cf01/f153d9824cb8d5cc-14/s250x400/38ce74f01e745dd2c0639ce184f79cd8f8cffb7f.gifv"width=160><br><br>	
+		<p align="center"><b>AWAY STATUS: Offtab! <br>
+BUSY STATUS: Asleep!</b></p>
+
+<p align="center"><i></i></a><br><img src="https://64.media.tumblr.com/eb2b6cffea167619bde959f23395cf01/f153d9824cb8d5cc-14/s250x400/38ce74f01e745dd2c0639ce184f79cd8f8cffb7f.gifv"width=160><br><br>	
 diagnosed traumagenic sys<br>
 <b>world of warcraft/pressure/pokemon</b><br>
 <i>liontrust / blightrunner / gabv1el</i> <br><br>  
 	  <b>prob afk </b> / w2i <br><br>
-	<img src="https://64.media.tumblr.com/03e3821b751c487423578e0c70cdd722/5dd58c6eb375bfa2-b5/s250x400/43bab36670a15aaf140207ee9a0693102d7b9175.gifv"/> <img src="https://64.media.tumblr.com/77d300514618d4d3670e8f6897655c41/b851da6c9feb2eab-d4/s250x400/163e141c8bd4a569d5cfce3ca3d7b5bb69dbb9ab.gifv"/><br><br>	
-  ☆☆☆<br><br>
+	<img src="https://64.media.tumblr.com/77d300514618d4d3670e8f6897655c41/b851da6c9feb2eab-d4/s250x400/163e141c8bd4a569d5cfce3ca3d7b5bb69dbb9ab.gifv"/><br><br>	
+  ☆☆☆<br>
 
 <p align="center">  <br><sub>something something fineprint<sub></p>
