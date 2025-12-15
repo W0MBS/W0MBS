@@ -12,7 +12,7 @@
   </a><br>
     <p align="center"> 21 y/o -- she/he/any/neos <br>
       married irl btw lol <br><br>
-  <i>all our sys links will be hosted here</i> <br> <a href="https://rentry.co/W0MBS"><i>RENTRY</i></a><br><br><img src="https://64.media.tumblr.com/eb2b6cffea167619bde959f23395cf01/f153d9824cb8d5cc-14/s250x400/38ce74f01e745dd2c0639ce184f79cd8f8cffb7f.gifv"width=160><br><br>	
+  <i>all our links r under renovation oops</i> <br><i></i></a><br><br><img src="https://64.media.tumblr.com/eb2b6cffea167619bde959f23395cf01/f153d9824cb8d5cc-14/s250x400/38ce74f01e745dd2c0639ce184f79cd8f8cffb7f.gifv"width=160><br><br>	
 diagnosed traumagenic sys<br>
 <b>world of warcraft/pressure/pokemon</b><br>
 <i>liontrust / blightrunner / gabv1el</i> <br><br>  
